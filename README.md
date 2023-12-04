@@ -1,4 +1,4 @@
-# Own data about my plantation.
+# Simple analysis on my own plantation data..
 
 2022 is the first year of my plantation. Last winter I saw a photo of a basket, full of chilli peppers that inspired me to grow my own plants.
 I bought seeds in January this year. I was studying online at the time, so I was at home, in a small vilage. Thanks to this I had a lot of space to build my farm.
